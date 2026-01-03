@@ -27,4 +27,4 @@ I am an Economics major specializing in the intersection of **Fundamental Valuat
 * **B.Sc. Economics**, Saint Leo University (Expected May 2026)
 * Based in: Florida, USA / Germany
 
-[Add your LinkedIn Link here]
+www.linkedin.com/in/joel-stuböck-6a665a338
